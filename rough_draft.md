@@ -22,6 +22,9 @@ We can enter on one of these terms
 ## We are Ishwerdas 
 As soon as we enter ishwerdas, **we become Ishwerdas**. We add our upwork profile (if any) to our team account and we start putting proposals using Ishwerdas portfolio through ishwerdas. Wherever we represent ourselves publicly in a professional setting, we try to represent Ishwerdas alongwith. That's the only marketing team we have, our developers. We might choose to reveal that to someone (say a client) sooner or later, but someone hires any one of us - they are hiring ishwerdas and everyone at ishwerdas alongwith. *There's no one face of the company, we all are.*
 
+## You will get the credit and the debit.  
+We found that workers usually don't like to be watched frequently. So we like to trust. But trust comes with responsibility. So it is expected from every Ishwerdas member to be responsible for their own work and manage himself/herself. One should always communicate their successes among the team to get appreciation and problems to get help from others.
+
 ## Also, we are more than Ishwerdas
 We have the **right to private work life**. So we don't say no to private projects from private clients in private time. This right just like any other right comes with responsibilities attached to it. If 
 a) it's felt that our private work life is harming Ishwerdas, or 
