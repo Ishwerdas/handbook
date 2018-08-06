@@ -26,7 +26,7 @@ As soon as we enter ishwerdas, **we become Ishwerdas**. We add our upwork profil
 We found that workers usually don't like to be watched frequently. So we like to trust. But trust comes with responsibility. So it is expected from every Ishwerdas member to be responsible for their own work and manage himself/herself. One should always communicate their successes among the team to get appreciation and problems to get help from others.
 
 ## Also, we are more than Ishwerdas
-We have the **right to private work life**. So we don't say no to private projects from private clients in private time. This right just like any other right comes with responsibilities attached to it. If 
+We have the **right to private work life** as long as it is legal by Indian laws. So we don't say no to private projects from private clients in private time. This right just like any other right comes with responsibilities attached to it. If 
 a) it's felt that our private work life is harming Ishwerdas, or 
 b) "lack of commitment to ishwerdas" seeps visibly out of that, 
 then for the sake of everyone else working at ishwerdas we should separate our identity from Ishwerdas. Ishwerdas will even help us do that.
